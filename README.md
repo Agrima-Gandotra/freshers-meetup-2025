@@ -1,1 +1,0 @@
-# freshers-meetup-2025
